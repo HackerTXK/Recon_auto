@@ -1,1 +1,1 @@
-aufk come from Aufklärung, It's a german work :)
+aufk come from Aufklärung, it's a german word :)
